@@ -1,4 +1,4 @@
-# Olá, eu sou a Alexia (accstudyac)! 👋
+# Olá, eu sou a Alexia (alexiacamargo) 👋
 
 Sou uma desenvolvedora apaixonada por tecnologia e inovação. Atualmente, estou em busca de novas oportunidades para aplicar minhas habilidades e continuar aprendendo.
 
